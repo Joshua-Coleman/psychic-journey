@@ -1,0 +1,2 @@
+# psychic-journey
+Get Money
